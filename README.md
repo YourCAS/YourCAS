@@ -5,3 +5,4 @@
 - 📫 How to reach me: Discord @blasterblaster9000
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: furry and gay :3
+- Kryptonian-ის დედის მუტელი მოვუტყნათ მთელმა მსოფლიომ, /სცდ/-ს სერვერიდან
