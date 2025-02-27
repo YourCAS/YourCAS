@@ -5,4 +5,4 @@
 - 📫 How to reach me: Discord @blasterblaster9000
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: furry and gay :3
-- ქოცებს დედის მუტელი მოვუტყნათ მთელმა მსოფლიომ!
+- I slept well on 7th of November, 2007 / შვიდ ნოემბერს მშვიდად მეძინა.
